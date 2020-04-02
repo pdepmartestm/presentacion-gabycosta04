@@ -23,7 +23,7 @@ Entre mis principales cosas que suelo hacer estan:
 - Jugar juegos en la compu o ps4 con amigos, como cod o fifa.
 - Tocar instrumentos como la guitarra o el bajo (aunque desde que comenze la facu el año pasado colgue mucho con eso)
 -  Jugar con los demas juegos de cartas o juegos de mesa, como el ludo, el uno y el truco (el cual aprendi a jugar el año pasado con compañeros de la facu)
--Soy muy fanatico del futbol, sobre todo el argentino, soy hincha de Independiente y soy socio desde 2015
+- Soy muy fanatico del futbol, sobre todo el argentino, soy hincha de Independiente y soy socio desde 2015
 
 ## Perfil:
 
